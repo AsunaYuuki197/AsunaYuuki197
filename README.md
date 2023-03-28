@@ -4,7 +4,7 @@
 - My name is HK, a seft-taught developer.
 - I'm addicted to anime, and Asuna Yuuki from S.A.O is my waifu. I usually play fps game such as Valorant, besides, gacha game like Honkai Impact, FGO also appeal to me. I really like to communicate, so feel free to talk with me about anything ^^. My english is still too bad, but I will try my best.
 
-<img src="https://64.media.tumblr.com/81496abd023579976b91f2a8239b5d32/2145e602b976fdf1-66/s540x810/6d19af796595d9c5462faf77d7eaa5dad7189b12.gif"  width="600" height="337">
+<img src="https://64.media.tumblr.com/81496abd023579976b91f2a8239b5d32/2145e602b976fdf1-66/s540x810/6d19af796595d9c5462faf77d7eaa5dad7189b12.gif"  width="600" height="300">
 
 ![ASUNA](https://64.media.tumblr.com/81496abd023579976b91f2a8239b5d32/2145e602b976fdf1-66/s540x810/6d19af796595d9c5462faf77d7eaa5dad7189b12.gif)
 # CONTACT ME ヾ(≧▽≦*)o
