@@ -9,7 +9,7 @@
 <img src="https://64.media.tumblr.com/81496abd023579976b91f2a8239b5d32/2145e602b976fdf1-66/s540x810/6d19af796595d9c5462faf77d7eaa5dad7189b12.gif"  width="600" >
 
 # CONTACT ME ヾ(≧▽≦*)o
-- Discord: HK#5863
+- **Discord:** HK#5863
 
 <img src = "https://thumbs.gfycat.com/CalculatingShadowyIchthyosaurs-size_restricted.gif" width = "600" >
 
